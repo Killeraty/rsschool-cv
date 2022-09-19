@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Killeraty.github.io/rsschool-cv/cv
